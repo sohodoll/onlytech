@@ -1,1 +1,1 @@
-# Staduim Map for Onlytech
+# Stadium Map for Onlytech
